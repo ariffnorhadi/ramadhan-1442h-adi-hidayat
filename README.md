@@ -17,7 +17,7 @@ YouTube Channel: [Adi Hidayat Official](https://www.youtube.com/c/AdiHidayatOffi
 
 [Aku suka 2 Ramadhan 1442H - Sifat Sholat Nabi [bag. 2] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=99dyVB0NvrQ&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=2)
 
-### Keutamaan-keutamaan solat - Makna solat
+### Keutamaan-keutamaan solat
 
 - Perilaku jadi baik - `29:45`
 - Terkabul Doa - `3:38-39`
