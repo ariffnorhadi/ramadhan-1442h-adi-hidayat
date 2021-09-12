@@ -61,7 +61,7 @@ Fiqh Sifat Solat Nabi\
 `29:45`\
 Kata amar dalam al Quran = wajib\
 **Utlu**, bacalah, fahamilah, pelajarilah, amalilah apa yang dipelajari\
-96 : 1 , bacalah tanpa dituntut untuk faham
+`96:1` , bacalah tanpa dituntut untuk faham
 
 Utlu, tilawah, baca, faham, amal
 
