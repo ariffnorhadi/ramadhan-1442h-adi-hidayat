@@ -140,3 +140,7 @@ jari telunjuk basuh hujung mata\
 jari ibu jari basuh bahagian belakang telinga ke bawah dagu (sunnah pelihara janggut)
 
 to be continued . . (tangan)
+
+## My other notes, feel free to check them out
+
+1. [al-Quran](github.com/ariffnorhadi/al-Quran)
