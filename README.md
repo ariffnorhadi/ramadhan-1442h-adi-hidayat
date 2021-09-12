@@ -54,7 +54,7 @@ point nya adalah untuk tingkatkan **taqwa**, \
 
 . . kerana mereka rasa mungkin ia adalah solat yang terakhir buat mereka.
 
-- `29:45`
+2. Tak faham apa yang dibaca dalam solat ( `29:45` )
 
 ## 15/04/2021
 
