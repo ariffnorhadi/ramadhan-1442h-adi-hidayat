@@ -41,18 +41,15 @@ point nya adalah untuk tingkatkan **taqwa**, \
 
 ### **Dua sebab utama kenapa orang solat tapi tak dapat manfaat yang Allah janjikan**
 
-1. Tidak khusyuk
-
-- 2 : 45 - 46
-45 - terima ujian dengan sabar, tunai solat dan minta tolong Allah. solat lebih berat dari sabar kecuali orang yang khusyuk dalam solat
-46 - siapa orang khusyuk?
-
-> mula dengan sebelum solat\
-> merasa sudah akan menghadap Allah ketika akan menunaikan solat\
+1. Tidak khusyuk\
+`2:45-46`\
+`45` - terima ujian dengan sabar, tunai solat dan minta tolong Allah. solat lebih berat dari sabar kecuali orang yang khusyuk dalam solat\
+`46` - siapa orang khusyuk? ayat ini menyatakan sifat orang yang khusyuk dalam solat\
+juga mereka mula sebelum solat\
+mereka rasa sudah akan menghadap Allah ketika akan menunaikan solat\
 `7:31` - pakai pakaian yang terbaik ketika menunaikan solat (suci, tak kotor)\
 `5:6` - mula dengan wudhu dengan sempurna
-
-. . kerana mereka rasa mungkin ia adalah solat yang terakhir buat mereka.
+dan kerana mereka rasa mungkin ia adalah solat yang terakhir buat mereka.
 
 2. Tak faham apa yang dibaca dalam solat ( `29:45` )
 
