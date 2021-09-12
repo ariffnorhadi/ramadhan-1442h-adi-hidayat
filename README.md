@@ -111,8 +111,7 @@ bila sampai hati, ,mesti akan beri kesan kepada semua anggota tubuh badan dan me
 boleh bermaksud tiga perkara,
 
 - husnu - sesuatu yang baik\
-`6:160`\
-`2:201`
+`6:160`, `2:201`
 
 - nazafah - sesuatu yang bersih
 - dhiya - cahaya
@@ -136,8 +135,8 @@ sempurnakan wudhu kita dahulu.
 3. usap kepala
 4. dua mata kaki
 
-wajah -
-telunjuk basuh hujung mata
-ibu jari basuh bahagian belakang telinga ke bawah dagu (sunnah pelihara janggut)
+**wajah**\
+jari telunjuk basuh hujung mata\
+jari ibu jari basuh bahagian belakang telinga ke bawah dagu (sunnah pelihara janggut)
 
 to be continued . . (tangan)
