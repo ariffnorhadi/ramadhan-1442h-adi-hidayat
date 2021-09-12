@@ -34,7 +34,8 @@ point nya adalah untuk tingkatkan **taqwa**, \
 `2:2-3`= orang taqwa membuktikan iman dengan tunaikan solat yang betul
 
 `65:2-3`\
-**taqwa** = 
+**taqwa**
+
 1. penyelesaian kepada semua masalah dalam kehidupan kita\
 2. Allah hantar rezeki yang kita tak sangka
 
