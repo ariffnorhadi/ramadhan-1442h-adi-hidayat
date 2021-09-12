@@ -2,7 +2,7 @@
 
 YouTube Channel: [Adi Hidayat Official](https://www.youtube.com/c/AdiHidayatOfficial)
 
-## 1442H - 13 April 2021
+## 13/04/2021
 
 [Aku suka 1 Ramadhan 1442H - Sifat Sholat Nabi [bag. 1] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=qiqppYKPhS4&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=2)
 
@@ -13,7 +13,7 @@ YouTube Channel: [Adi Hidayat Official](https://www.youtube.com/c/AdiHidayatOffi
 - Doa dikabulkan - `2:45-46, 3:38`
 - Hati tenang - `20:14, 13:28`
 
-## 1442H - 14 April 2021
+## 14/04/2021
 
 [Aku suka 2 Ramadhan 1442H - Sifat Sholat Nabi [bag. 2] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=99dyVB0NvrQ&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=2)
 
@@ -30,9 +30,8 @@ buktinya ialah ayat 2 - mulakan dengan tunaikan solat yang betul
 
 Allah pemilik kebahagiaan dan kejayaan, Allah pemilik semuanya.
 
-> point nya adalah untuk tingkatkan taqwa, \
-`2:2-3`
-orang taqwa membuktikan iman dengan tunaikan solat yang betul
+point nya adalah untuk tingkatkan **taqwa**, \
+`2:2-3`= orang taqwa membuktikan iman dengan tunaikan solat yang betul
 
 `65:2-3`\
 **taqwa** = penyelesaian kepada semua masalah dalam kehidupan kita
@@ -55,7 +54,7 @@ Allah hantar rezeki yang kita tak sangka
 
 - `29:45`
 
-## 1442H - 15 April 2021
+## 15/04/2021
 
 [Aku suka 3 Ramadhan 1442H - Sifat Sholat Nabi [bag. 3] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=mfhrs-Dyv7M&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=3)
 
@@ -71,7 +70,7 @@ Utlu, tilawah, baca, faham, amal
 
 to be continueed :)
 
-## 1442H - 16 April 2021
+## 16/04/2021
 
 [Aku suka 4 Ramadhan 1442H Spesial Kutbah Sholat Jumat ( Makna Shaum ) - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=8wTnKbTNiuU&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=4
 )
@@ -102,7 +101,7 @@ bila sampai hati, ,mesti akan beri kesan kepada semua anggota tubuh badan dan me
 - tidak buat perkara yang tidak berfaedah
 - kalau kena provoke, dia boleh mengatakan pada dirinya sendiri (saya sedang puasa)
 
-## 1442H - 17 April 2021
+## 17/04/2021
 
 [Aku suka 5 Ramadhan 1442H - Sifat Sholat Nabi [Bab Wudhu] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=5aK-mjnb_4Y&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=5)
 
