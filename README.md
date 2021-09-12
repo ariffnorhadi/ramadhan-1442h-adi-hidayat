@@ -115,7 +115,7 @@ boleh bermaksud tiga perkara,
 - dhiya - cahaya
 `10:5` , mentari bersinar
 
-gabungkan tiga tiga = toharoh
+gabungkan tiga tiga = toharoh (suci di dalam dan luar)
 
 `5:6`
 > ayat dibuka dengan iman\
@@ -133,11 +133,33 @@ sempurnakan wudhu kita dahulu.
 3. usap kepala
 4. dua mata kaki
 
-**wajah**\
+**1. wajah**\
 jari telunjuk basuh hujung mata\
 jari ibu jari basuh bahagian belakang telinga ke bawah dagu (sunnah pelihara janggut)
 
 to be continued . . (tangan)
+
+## 18/04/2021
+
+[Aku suka 6 Ramadhan 1442H - Sifat Sholat Nabi [Bab Wudhu] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=ED-QBIpsXbY&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=6)
+
+**2. tangan sampai siku**\
+tangan = jari sampai bahu (dalam arab), siku = mirfaq
+
+flow yang betul ialah dari jari ke siku
+
+**3. usap kepala**\
+ambil air (tapi tak perlu tuang ke kepala), kemudian usap kepala
+
+**4. kaki ke mata kaki/buku lali**\
+bersihkan jari2 dan basuh sampai ke buku lali
+
+### Tambahan
+
+1. istinsya
+2. telinga
+
+Kemudian baca doa selepas wudhu
 
 ## My other notes, feel free to check them out
 
