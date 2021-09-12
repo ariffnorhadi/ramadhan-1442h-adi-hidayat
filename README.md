@@ -82,9 +82,8 @@ puasa ada dua kata (soum `19 : 26`) , \
 siyam (puasa ramadhan), soum = menahan (umum)
 
 **siyam** = puasa dengan syariat (ada ketentuan)\
-fajar sampai maghrib (ada yang boleh ada yang tak boleh)
-
-> kalau orang puasa dengan betul, (jim dan nun) bermaksud sesuatu yang tersembunyi
+fajar sampai maghrib (ada yang boleh ada yang tak boleh)\
+kalau orang puasa dengan betul, (jim dan nun) bermaksud sesuatu yang tersembunyi\
 junnatun = perisai\
 puasa = perisai
 
@@ -119,7 +118,7 @@ boleh bermaksud tiga perkara,
 gabungkan tiga tiga = toharoh
 
 `5:6`
-> ayat dibuka dengan iman
+> ayat dibuka dengan iman\
 amalan wudhu = pertaruhkan iman dihadapan Allah SWT
 
 sekiranya kita ingin sempurnakan solat kita,
