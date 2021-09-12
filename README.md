@@ -41,7 +41,7 @@ point nya adalah untuk tingkatkan **taqwa**, \
 
 ### **Dua sebab utama kenapa orang solat tapi tak dapat manfaat yang Allah janjikan**
 
-1. Tidak khusyuk\
+1. Tak khusyuk\
 `2:45-46`\
 `45` - terima ujian dengan sabar, tunai solat dan minta tolong Allah. solat lebih berat dari sabar kecuali orang yang khusyuk dalam solat\
 `46` - siapa orang khusyuk? ayat ini menyatakan sifat orang yang khusyuk dalam solat\
