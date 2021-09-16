@@ -167,7 +167,7 @@ Kemudian baca doa selepas wudhu
 
 `4:43`, `5:6`
 
-Tayammum
+### Tayammum
 
 - debu yang bersih
 - wajah dan tangan
