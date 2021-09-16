@@ -161,6 +161,17 @@ bersihkan jari2 dan basuh sampai ke buku lali
 
 Kemudian baca doa selepas wudhu
 
+## 19/04/2021
+
+[Aku suka 7 Ramadhan 1442H - Sifat Sholat Nabi [ Tata Cara Tayamum ] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=dF8sBab7crI&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=7)
+
+`4:43`, `5:6`
+tayammum
+
+- debu yang bersih
+- wajah dan tangan
+- tangan boleh sampai bahu/siku/pergelangan tangan
+
 ## My other notes, feel free to check them out
 
-1. [al-Quran](github.com/ariffnorhadi/al-Quran)
+1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
