@@ -166,7 +166,8 @@ Kemudian baca doa selepas wudhu
 [Aku suka 7 Ramadhan 1442H - Sifat Sholat Nabi [ Tata Cara Tayamum ] - Ustadz Adi Hidayat](https://www.youtube.com/watch?v=dF8sBab7crI&list=PL3iW_rlEoH5JeRQCAyMCP7iDpJqe4O9wo&index=7)
 
 `4:43`, `5:6`
-tayammum
+
+Tayammum
 
 - debu yang bersih
 - wajah dan tangan
