@@ -173,6 +173,23 @@ Kemudian baca doa selepas wudhu
 - wajah dan tangan
 - tangan boleh sampai bahu/siku/pergelangan tangan
 
-## My other notes, feel free to check them out
+## 20/04/2021 / 8 Ramadhan
+
+### Posisi Menghadap Kiblat
+
+HR Bukhari (757), HR Muslim (397)\
+Perawi Abu Huraira, Khallad
+
+Setelah wudhu sempurna, hadap ke kiblat - `2:144`, Masjidil Haram
+
+`3:96-97`
+> Kiblat pertama yang dibangunkan kepada manusia ialah Ka'bah
+
+`2:115`
+> Allah pemilik timur dan barat (Allah pemilik semua arah), sekiranya kau tidak tahu arah kiblatmu, niatkan kau menghadap Allah
+
+- jari jari kaki menghadap ke kiblat, kaki sejajar dengan bahu (tidak terlalu lebar atau rapat)
+
+## My other notes
 
 1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
