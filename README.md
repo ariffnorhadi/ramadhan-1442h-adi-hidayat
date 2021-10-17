@@ -173,7 +173,7 @@ Kemudian baca doa selepas wudhu
 - wajah dan tangan
 - tangan boleh sampai bahu/siku/pergelangan tangan
 
-## 20/04/2021 / 8 Ramadhan
+## 20/04/2021 - 8 Ramadhan
 
 ### Posisi Menghadap Kiblat
 
@@ -189,6 +189,16 @@ Setelah wudhu sempurna, hadap ke kiblat - `2:144`, Masjidil Haram
 > Allah pemilik timur dan barat (Allah pemilik semua arah), sekiranya kau tidak tahu arah kiblatmu, niatkan kau menghadap Allah
 
 - jari jari kaki menghadap ke kiblat, kaki sejajar dengan bahu (tidak terlalu lebar atau rapat)
+
+## 21/04/2021 - 9 Ramadhan
+
+### Bagaimana menyusun saf dalam solat (berjemaah)
+
+Imam dan Makmum (1) - Sejajar - Semua lelaki / perempuan
+Imam dan Makmum (1), kemudian datang makmum lain, beri isyarat, kemudian makmum gerak ke belakang (semua lelaki)
+Makmum perempuan sentiasa di belakang lelaki
+
+*lurusnya saf dengan menggunakan tumit sebagai ukuran* serta memberikan kemudahan kepada makmum lain untuk solat (tidak terlalu sempit)
 
 ## My other notes
 
