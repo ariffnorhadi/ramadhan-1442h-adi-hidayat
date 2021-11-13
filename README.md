@@ -202,6 +202,8 @@ Makmum perempuan sentiasa di belakang lelaki
 
 ## 22/04/2021 - 10 Ramadhan (Takbir) :heavy_check_mark:
 
+## 23/04/2021 - 11 Ramadhan (Takbir) :heavy_check_mark:
+
 ## My other notes
 
 1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
