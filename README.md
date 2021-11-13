@@ -200,6 +200,8 @@ Makmum perempuan sentiasa di belakang lelaki
 
 *lurusnya saf dengan menggunakan tumit sebagai ukuran* serta memberikan kemudahan kepada makmum lain untuk solat (tidak terlalu sempit)
 
+## 22/04/2021 - 10 Ramadhan (Takbir) :heavy_check_mark:
+
 ## My other notes
 
 1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
