@@ -202,7 +202,9 @@ Makmum perempuan sentiasa di belakang lelaki
 
 ## 22/04/2021 - 10 Ramadhan (Takbir) :heavy_check_mark:
 
-## 23/04/2021 - 11 Ramadhan (Takbir) :heavy_check_mark:
+## 23/04/2021 - 11 Ramadhan (Selepas Takbir) :heavy_check_mark:
+
+## 24/04/2021 - 12 Ramadhan (Doa Iftitah), Pembuka Solat :heavy_check_mark:
 
 ## My other notes
 
