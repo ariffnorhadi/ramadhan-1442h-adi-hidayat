@@ -206,6 +206,12 @@ Makmum perempuan sentiasa di belakang lelaki
 
 ## 24/04/2021 - 12 Ramadhan (Doa Iftitah), Pembuka Solat :heavy_check_mark:
 
-## My other notes
+## 25/05/2021 - 13 Ramadhan (Al-Fatihah) :heavy_check_mark:
+
+`3:38-39` , Allah kabulkan permintaan Nabi Zakaria
+
+`2:153`
+
+## Other notes
 
 1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
