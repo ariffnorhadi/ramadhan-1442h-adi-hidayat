@@ -212,6 +212,8 @@ Makmum perempuan sentiasa di belakang lelaki
 
 `2:153`
 
+## 14 Ramadhan (Permintaan Dalam Solat) :heavy_check_mark:
+
 ## Other notes
 
 1. [al-Quran](https://github.com/ariffnorhadi/al-Quran)
